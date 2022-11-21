@@ -1,6 +1,6 @@
 ## ✿ Hello
 - tifality lover
-- life is hards
+- life is hard
 
 ### Contacts
 - Discord: **Kamiya#3576**
